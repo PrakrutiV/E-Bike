@@ -16,7 +16,9 @@ Cost-Effective: Provides a budget-friendly transportation option.
 User-Friendly: Suitable for both new and seasoned riders.
 
 **Web Technologies used :**
+
 -HTML
+
 -CSS
 
 **Visit our Website at:**
