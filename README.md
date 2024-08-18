@@ -1,0 +1,2 @@
+Ebony E-Bikes | Your dreams now have an electric boost
+At our showroom we are passionate about revolutionizing the way you commute and explore the world around you. We believe in the power of electric bikes to provide a sustainable and thrilling mode of transportation. Whether you're looking for an eco-friendly commuting solution or an adventurous ride through the countryside our electric bikes are designed to meet your needs.
